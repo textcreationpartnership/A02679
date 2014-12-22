@@ -35,38 +35,62 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The excommunication published by the L. archbishop of Dublin Thomas Flemming aliàs Barnwell friar of
+
+1. To the judicious Reader.
+
 #####Body#####
 
-1. CAP. I.
+1. ¶Heere followeth the Excommunication,
+publiſhed by the commaund of
+Thomas Flemming, aliàs Barnwell, L.
+Archbiſhop of Dublin, and Friar of the
+Order of S. Francis, thorough all
+the Chappells and Oratoryes of
+Dublin the 6. of March.
 
-1. CAP. II.
+1. THE
+EXCOMMVNICATION
+PVBLISHED BY THE L.
+ARCHBISHOP OF DVBLIN
+Thomas Flemming aliàs Barnwell, Friar of
+the Order of S. Francis, againſt the Inhabitants
+of the Dioceſſe of Dublin, for
+hearing the Maſſes of Peter Caddell
+Dr of Divinity, and Paul Harris
+Prieſts, is proved not onely
+injuſt, but of no validity,
+and conſequently binding
+to no obedience.
 
-1. CAP. III.
+    _ CAP. I.
 
-1. CAP. IIII.
+    _ CAP. II.
 
-1. CAP. V.
+    _ CAP. III.
 
-1. CAP. VI.
+    _ CAP. IIII.
 
-1. CAP. VII.
+    _ CAP. V.
 
-1. CAP. VIII.
+    _ CAP. VI.
 
-1. CAP. IX.
+    _ CAP. VII.
 
-1. CAP. I.
+    _ CAP. VIII.
 
-1. CAP. II.
+    _ CAP. IX.
 
-1. CAP. III.
+    _ CAP. I.
 
-1. CAP. IIII.
+    _ CAP. II.
 
-1. CAP. V.
+    _ CAP. III.
 
-1. CAP. VI.
+    _ CAP. IIII.
+
+    _ CAP. V.
+
+    _ CAP. VI.
 
 **Types of content**
 
